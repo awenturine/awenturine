@@ -9,3 +9,5 @@ however, it would be appreciated if you could read below especially if you're lo
 **dni** if you fit basic criteria (lgbtphobic, racist, ableist, misogynistic, etc). HEAVY dni if you're a zionist ("neutral," pro israel, etc). pro/com/darkshipper or condone it. in general you're an asshole.
 
 **interact with caution if** you're an irl/da (fictkins are fine), deny queer coding in hyv games or hc queer characters as different identities (no aventurine isnt bisexual fuck you), you multiship with aventio + haikaveh + wriolette.
+
+friends are an exception in most cases ^_^
