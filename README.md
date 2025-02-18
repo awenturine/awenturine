@@ -6,7 +6,7 @@ however, it would be appreciated if you could read below especially if you're lo
 
 **byi** please use tone tags for me (specifically use /srs, /j, /hvj, /lh, /p the most). i might ramble a lot about my interests, discourse, etc so my apologies if it comes off very annoying!!. yes i am a part of a system however i do not frequently talk about it.
 
-**dni** if you fit basic criteria (lgbtphobic, racist, ableist, misogynistic, etc). HEAVY dni if you're a zionist ("neutral," pro israel, etc). pro/com/darkshipper or condone it. in general you're an asshole.
+**dni** if you fit basic criteria (lgbtphobic, racist, ableist, misogynistic, etc). HEAVY dni if you're a zionist (including being neutral). pro/com/darkshipper or condone it. in general you're an asshole.
 
 **interact with caution if** you're an irl/da (fictkins are fine), deny queer coding in hyv games or hc queer characters as different identities (no aventurine isnt bisexual fuck you), you multiship with aventio + haikaveh + wriolette.
 
