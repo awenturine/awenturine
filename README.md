@@ -6,7 +6,7 @@ however, it would be appreciated if you could read below especially if you're lo
 
 **byi** 𝜗𐑞 ⠀ please use tone tags for me (/srs, /j, /lh, /s the most). i might ramble a lot about my interests so my apologies if it comes off very annoying!!. yes i am a part of a system however i do not frequently talk about it, feel free to ask questions!
 
-**dni** 𝜗𐑞 ⠀ if you fit basic criteria (lgbtphobic, racist, ableist, misogynistic, islamophobic, antisemitic, etc). you're a zionist / anti palestine. pro/com/darkshipper or condone it. in general you're an asshole.
+**dni** 𝜗𐑞 ⠀ if you fit basic criteria (lgbtphobic, racist, ableist, misogynistic, islamophobic, antisemitic, etc). you're a zionist / anti palestine. proshipper or condone proshipping. in general you're an asshole.
 
 **interact w/ caution** 𝜗𐑞 ⠀ you're an irl/da (absolutely nothing against you guys just don't expect me to feed into it, i have some bad experiences /gen), deny queer coding in hyv games or hc queer characters as different identities, you multiship with aventio + haikaveh + wriolette.
 
