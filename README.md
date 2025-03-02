@@ -8,6 +8,6 @@ however, it would be appreciated if you could read below especially if you're lo
 
 **dni** 𝜗𐑞 ⠀ if you fit basic criteria (lgbtphobic, racist, ableist, misogynistic, islamophobic, antisemitic, etc). you're a zionist / anti palestine. proshipper or condone proshipping. in general you're an asshole.
 
-**interact w/ caution** 𝜗𐑞 ⠀ you're an irl/da (absolutely nothing against you guys just don't expect me to feed into it, i have some bad experiences /gen), deny queer coding in hyv games or hc queer characters as different identities, you multiship with aventio + haikaveh + wriolette.
+**interact w/ caution** 𝜗𐑞 ⠀ you're an irl/da (absolutely nothing against you guys! i've just had traumatic experiences when using the terms myself), deny queer coding in hyv games, you multiship with aventio + haikaveh + wriolette.
 
 friends are an exception in most cases ^_^
