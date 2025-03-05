@@ -1,13 +1,13 @@
-silent c+h is ALWAYS encouraged !  however, please whisper to interact as i may be offtab.  please don't cud for the sake of ships unless we're friends.
+[𝗔𝗥𝗧 𝗖𝗥𝗘𝗗𝗜𝗧](https://x.com/kavehtismed/status/1774363920448549053)
 
-however, it would be appreciated if you could read below especially if you're looking to be friends [✙]𓈒ᴗ)
+![image](https://github.com/user-attachments/assets/03cd3854-d888-4719-ba79-34672334f8ff)
 
-![image](https://github.com/user-attachments/assets/62c55208-23a7-400c-9ec4-8edf3568c6f3)
+𝗜𝗡𝗙𝗢 ˳ ⠀ call me rice, or whatever name you'd like *!* pls speak in eng or bangla with me ^_^ i'm very introveted and anxious, however i can be very social too .
 
-**byi** 𝜗𐑞 ⠀ please use tone tags for me (/srs, /j, /lh, /s the most). i might ramble a lot about my interests so my apologies if it comes off very annoying!!. yes i am a part of a system however i do not frequently talk about it, feel free to ask questions!
+𝗕𝗬𝗜 ˳ ⠀ i swear a lot and occasionally use slurs *that i can reclaim,* if that bothers you, lmk! avoid taking me srsly half the time, and also please do use tone tags with me 
 
-**dni** 𝜗𐑞 ⠀ if you fit basic criteria (lgbtphobic, racist, ableist, misogynistic, islamophobic, antisemitic, etc). you're a zionist / anti palestine. proshipper or condone proshipping. in general you're an asshole.
+𝗗𝗡𝗜 ˳ ⠀ if you fit [basic criteria](https://rentry.co/bsic-dni), ship avenpaz / neuvifuri / wrioney / sunturine / robinhill / ratiomei, spread around that one fucking doc on how arlefuri is abusive you're weird and i'm free to explain why! <3 
 
-**interact w/ caution** 𝜗𐑞 ⠀ you're an irl/da (absolutely nothing against you guys! i've just had traumatic experiences when using the terms myself), deny queer coding in hyv games, you multiship with aventio + haikaveh + wriolette.
+𝗜𝗡𝗧 ˳ ⠀ if we share the same interests!!! absolutely!!! i don't really hav much else to say here ;;
 
-friends are an exception in most cases ^_^
+𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦 ˳ ⠀ star rail, genshin, a date with death, omori, life is strange, cookie run: kingdom, nomnomnami games, stardew valley, alien stage, cats / otters / sheep / axolotls, and more *!*
