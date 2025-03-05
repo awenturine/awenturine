@@ -7,11 +7,11 @@ ART CREDIT @ kavehtismed
 </p>
 
 <p align="center">
-INFO ˳ ⠀ call me rice, or whatever name you'd like *!* pls speak in eng or bangla with me ^_^ i'm very introveted, pls be patient .
+INFO ˳ ⠀ call me rice, or whatever name you'd like ! pls speak in eng or bangla with me ^_^ i'm very introveted, pls be patient .
 </p>
 
 <p align="center">
-BYI ˳ ⠀ i swear a lot and occasionally use slurs *that i can reclaim,* if that bothers you, lmk! avoid taking me srsly half the time
+BYI ˳ ⠀ i swear a lot and occasionally use slurs that i can reclaim, if that bothers you, lmk! avoid taking me srsly half the time
 </p>
 
 <p align="center">
@@ -23,5 +23,5 @@ INT ˳ ⠀ if we share the same interests!!! absolutely!!! i don't really hav mu
 </p>
 
 <p align="center">
-INTERESTS ˳ ⠀ star rail, genshin, a date with death, omori, life is strange, cookie run: kingdom, nomnomnami games, stardew valley, alien stage, cats / otters / sheep / axolotls, and more *!*
+INTERESTS ˳ ⠀ star rail, genshin, a date with death, omori, life is strange, cookie run: kingdom, nomnomnami games, stardew valley, alien stage, cats / otters / sheep / axolotls, and more !
 </p>
