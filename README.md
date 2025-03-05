@@ -3,7 +3,7 @@ ART CREDIT @ kavehtismed
 </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/03cd3854-d888-4719-ba79-34672334f8ff" height=200px}/>
+<img src="https://github.com/user-attachments/assets/03cd3854-d888-4719-ba79-34672334f8ff" height=150px}/>
 </p>
 
 <p align="center">
