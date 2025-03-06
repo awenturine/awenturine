@@ -23,5 +23,5 @@ INT ˳ ⠀ if we share the same interests!!! absolutely!!! i don't really hav mu
 </p>
 
 <p align="center">
-INTERESTS ˳ ⠀ star rail, genshin, a date with death, omori, life is strange, cookie run: kingdom, nomnomnami games, stardew valley, alien stage, cats / otters / sheep / axolotls, and more !
+INTERESTS ˳ ⠀ star rail, genshin, a date with death, omori, life is strange, cookie run: kingdom, nomnomnami games, stardew valley, alien stage, cats / otters / axolotls, and more !
 </p>
