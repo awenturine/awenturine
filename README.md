@@ -1,15 +1,13 @@
-<p align="center">
-ART CREDIT @ kavehtismed
-</p>
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=awenturine&color=523670)
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/03cd3854-d888-4719-ba79-34672334f8ff" height=150px}/>
+<img src="https://files.catbox.moe/zsp6wb.png" width="185" height="150">
 </p>
 
-<p align="center">
-INFO ˳ ⠀ call me rice, or whatever name you'd like ! pls speak in eng or bangla with me ^_^ i'm very introveted, pls be patient. i always encourage int!
-</p>
+please int if you like ratiorine haikaveh or victuuri i owe you my life /silly. i dont have a set dni criteria aside from the basic criteria.
 
 <p align="center">
-INTERESTS ˳ ⠀ star rail, genshin, a date with death, omori, life is strange, cookie run: kingdom, nomnomnami games, stardew valley, and more !
+<a href="https://rentry.co/finalvictor">rentry</a> ‎ ‎ ‎  <a href="https://axolotl.atabook.org/">ata</a> ‎ ‎ ‎  <a href="https://x.com/otq_mm">art cred</a>
 </p>
