@@ -7,5 +7,5 @@
 </p>
 
 <p align="center">
-<a href="https://rentry.co/finalvictor">rentry</a> ‎ ‎ ‎  <a href="https://axolotl.atabook.org/">ata</a> ‎ ‎ ‎  <a href="https://x.com/otq_mm">art cred</a>
+<a href="https://rentry.co/finalvictor">rentry</a> ‎ ‎ ‎  <a href="https://verity.atabook.org/">ata</a> ‎ ‎ ‎  <a href="https://x.com/otq_mm">art cred</a>
 </p>
