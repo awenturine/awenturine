@@ -5,5 +5,5 @@
 <img width="1024" height="751" alt="gkgsvx" src="https://github.com/user-attachments/assets/a5cf12d2-99ff-4244-a00e-5a0259932d99" /> 
 
 <p align="center">
-<a href="https://rentry.co/finalvictor">rentry</a> ‎ ‎ ‎  <a href="https://verity.atabook.org/">atabook</a>
+<a href="https://fluffle.cc/ratiorines">fluffle.cc</a> ‎ ‎ ‎  <a href="https://verity.atabook.org/">atabook</a>
 </p>
